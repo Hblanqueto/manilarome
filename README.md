@@ -8,4 +8,4 @@
 	- Linus Torvalds
 </p>
 
-I really love this quote from the man himself because I really love making ideas real. That's why if I want something that doesn't exist, I'll create or do it. I did it for me. I liked it. I was good at it and I was really I was alive.
+I really love this quote from the man himself because I really love making ideas real. That's why if I want something that doesn't exist, I'll create or do it. I did it for me. I like it. I was good at it and I was really I was alive.
